@@ -1,10 +1,34 @@
 SHIPS:
 
 Ninjago ships:
-int: Lava, Jaya, Lloyd x Akita, Pixen(Pixal x Zane) , Harumi x morro
+int: all except lloyrumi
 
-iwec; Lloyd x Harumi, Lloyd x morro, Nya x Zane, Cole x Jay???? 
+boundaries
+in pt :
 
-HEAVY DNI: Wu x Misako, Nya x Kai, Jay x Kai, Sora x Arin, Frak x Sora, Wyldfyre x Kai, 
+♫　ᩭᘏᗢ　　you can do
 
-Wip
+Boop , kisses , int , cuddle ,
+you can but please ask unless safes
+
+frq , party inv , matching
+you cannot do unless super safes
+
+mean jokes , curse at me multiple times
+you definitely CANNOT DO..
+
+misgendering me (ftm) , call me a she/her , bring up things i don't want to talk abt
+in disc :
+
+♫　ᩭᘏᗢ　　you can do
+
+spam , match , int , frq
+you can but please ask unless safes
+
+private DM , join my disc serv , vc
+you cannot do unless super safes
+
+mean jokes , curse at me multiple times
+you definitely CANNOT DO..
+
+misgendering me (ftm) , call me a she/her , bring up things i don't want to talk abt
